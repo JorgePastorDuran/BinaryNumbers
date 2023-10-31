@@ -6,5 +6,5 @@ I'm proud to say that the level is now fully playable and freely available in FO
 https://www.fortnite.com/@epam_educational/6891-6601-6180?lang=en-US
 
 
+https://github.com/JorgePastorDuran/BinaryNumbers/assets/95531829/2640c161-f990-4966-b456-9b6f7f557c65
 
-https://user-images.githubusercontent.com/95531829/174547415-758b3c99-c6ca-4f3c-8b2b-82bb764619cc.mp4
