@@ -7,4 +7,4 @@ https://www.fortnite.com/@epam_educational/6891-6601-6180?lang=en-US
 
 
 
-[https://user-images.githubusercontent.com/95531829/174547415-758b3c99-c6ca-4f3c-8b2b-82bb764619cc.mp4](https://dms.licdn.com/playlist/vid/D4D05AQH5b9GG3_r7cw/mp4-640p-30fp-crf28/0/1680259562479?e=2147483647&v=beta&t=vL0zUiqKq3p02dIe90dpxARkS8O-L5n9PqZODblYZi0)https://dms.licdn.com/playlist/vid/D4D05AQH5b9GG3_r7cw/mp4-640p-30fp-crf28/0/1680259562479?e=2147483647&v=beta&t=vL0zUiqKq3p02dIe90dpxARkS8O-L5n9PqZODblYZi0
+https://user-images.githubusercontent.com/95531829/174547415-758b3c99-c6ca-4f3c-8b2b-82bb764619cc.mp4
